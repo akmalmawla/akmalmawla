@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on KN.Web
 - 📫 How to reach me can contack sidhiakmal99@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: iam newbie at IT and interest for develop my IT Knowledge, Guide me please
 
 <!---
